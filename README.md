@@ -1,0 +1,1 @@
+# loja-stickers-da-amonelu
